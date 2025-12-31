@@ -1,19 +1,12 @@
-hey ! pls read this :
-am ella/liv, under 14, please dont be THAT creepy/weird to me 
+please reaaadd :
 
+hi! am ella/liv, am under 14, please dont be THAT creepy/weird
 
- -i get nosy sometimes so, please don't mind it
+— before u int :
 
- - am sometimes afk, w2i!!
-  
- - if i do smith wrong just tell me, dont be afraid, please, i make alot of mistake
+ i may sometimes act problomatic so be aware, i kinda get moody (i have alot of mood swings help) im not very good in english — my grammer, spelling etc wont always be correct so dont mind it
 
- - if u dont like me, block or ignore me
+ — if u dont like me or feel uncomfortable arround me, block or ignore me
+ 
 
-
-c*h freeeeellyyyyyyy <3 idm at all !!
-
-
-  — am kinda bad at english , my grammer wont always be good, i text pretty slowly, i lowk get mad at small things and am kinda shy ! so if u dont wanna deal with me, block or ignore freely !
-
- THANKS FOR READING ! ^_^
+ ; thanks forr readdinnnggg!!!
